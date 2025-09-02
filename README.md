@@ -1,1 +1,0 @@
-# Gassi-gehen
